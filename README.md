@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects involving software security, system administration, and network security
 
-📫 How to reach me: salaheddine.elmohadeb@example.com (ajoutez votre vrai e-mail si nécessaire)
+📫 How to reach me: ellohsalah@gmail.com
 
 😄 Pronouns: He/Him
 
